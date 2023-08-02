@@ -23,8 +23,8 @@ We are looking forward to talking with you in office hours!
 - No office hours offered currently at this time.
 
 ## Monday
-
-- No office hours offered currently at this time.
+- Christopher Gomez, he/him, 9:00 AM - 10:00 AM.  https://umass-amherst.zoom.us/j/96642732006
+- Roshan Praveen Shetty, he/him, 10:00AM - 11:00 AM - https://umass-amherst.zoom.us/j/99488009883
 
 ## Tuesday
 
@@ -39,7 +39,8 @@ We are looking forward to talking with you in office hours!
 - No office hours offered currently at this time.
 
 ## Friday
-
+- Christopher Gomez, he/him, 9:00 AM - 10:00 AM.  https://umass-amherst.zoom.us/j/96642732006
+- Roshan Praveen Shetty, he/him - 10:00AM - 11:00AM - https://umass-amherst.zoom.us/j/99488009883
 - Rohan Bapat, 11:00 AM - 12:00 PM, https://umass-amherst.zoom.us/j/97166745987?pwd=OWx3bmZyd0EySWprNDYzQTBBQVh2dz09
 
 ## Saturday
